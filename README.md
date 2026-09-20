@@ -50,7 +50,10 @@ do not sexually harass or roleplay with me . i am a minor i will block / ignore 
 <img width="223" height="112" alt="IMG_1004" src="https://github.com/user-attachments/assets/359ce738-6ebd-4a5e-bb02-11a708a98415" />
 <img width="223" height="112" alt="IMG_1009" src="https://github.com/user-attachments/assets/5b1c2a30-7066-45b9-9036-be273bf651aa" />
 <img width="223" height="112" alt="IMG_1010" src="https://github.com/user-attachments/assets/1779be88-c0df-4c3c-af0e-25cd0fd9267b" />
-
+<img width="223" height="112" alt="IMG_1011" src="https://github.com/user-attachments/assets/d99bce4c-ad24-4b34-8695-6875a18ac4f1" />
+<img width="223" height="112" alt="IMG_1006" src="https://github.com/user-attachments/assets/043491a4-62e9-4218-88ea-6d212c3c600d" />
+<img width="223" height="112" alt="IMG_1008" src="https://github.com/user-attachments/assets/ba736b87-2d04-4ab8-82c1-49c1f4a2a41f" />
+<img width="223" height="112" alt="IMG_1007" src="https://github.com/user-attachments/assets/55d56b5e-581a-4955-8153-4ffbc9a30a34" />
 god zamn bro🤤
 
 
