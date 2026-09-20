@@ -46,6 +46,7 @@ do not sexually harass or roleplay with me . i am a minor i will block / ignore 
 
 
 <img width="334" height="223" alt="IMG_1004" src="https://github.com/user-attachments/assets/359ce738-6ebd-4a5e-bb02-11a708a98415" />
+<img width="334" height="223" alt="IMG_1009" src="https://github.com/user-attachments/assets/5b1c2a30-7066-45b9-9036-be273bf651aa" />
 
 god zamn bro🤤
 
