@@ -1,3 +1,5 @@
+<img width="1470" height="416" alt="Untitled86_20260908161816" src="https://github.com/user-attachments/assets/17ed955c-523d-45fc-a432-3bac6df87a21" />
+
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command!;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
 <img width="109" height="68" alt="Untitled107_20260912173621" src="https://github.com/user-attachments/assets/1cc7492c-6558-45a1-ba7d-9025b2d12ee3" />
@@ -45,8 +47,12 @@ do not sexually harass or roleplay with me . i am a minor i will block / ignore 
 
 
 
-<img width="334" height="223" alt="IMG_1004" src="https://github.com/user-attachments/assets/359ce738-6ebd-4a5e-bb02-11a708a98415" />
-<img width="334" height="223" alt="IMG_1009" src="https://github.com/user-attachments/assets/5b1c2a30-7066-45b9-9036-be273bf651aa" />
+<img width="223" height="112" alt="IMG_1004" src="https://github.com/user-attachments/assets/359ce738-6ebd-4a5e-bb02-11a708a98415" />
+<img width="223" height="112" alt="IMG_1009" src="https://github.com/user-attachments/assets/5b1c2a30-7066-45b9-9036-be273bf651aa" />
+<img width="223" height="112" alt="IMG_1010" src="https://github.com/user-attachments/assets/1779be88-c0df-4c3c-af0e-25cd0fd9267b" />
 
 god zamn bro🤤
+
+
+<img width="1470" height="416" alt="Untitled86_20260908161837" src="https://github.com/user-attachments/assets/99b5eaae-60d3-4d81-b857-726ef34bc230" />
 
