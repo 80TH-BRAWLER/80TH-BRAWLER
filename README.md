@@ -27,7 +27,7 @@
 
 🎭 - roleplaying  ; i dontuse this one …
 
-# Before you roll your dice ; BYI 
+# BBYI 
 <img width="20" height="20" alt="IMG_0966" src="https://github.com/user-attachments/assets/8fda7173-0263-476c-8279-53807feb0eb1" />
 Read my strawpage …. 
 
