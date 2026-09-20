@@ -44,3 +44,8 @@ i amm a good listener im just horrible at responding .
 do not sexually harass or roleplay with me . i am a minor i will block / ignore / mute you . 
 
 
+
+<img width="334" height="223" alt="IMG_1004" src="https://github.com/user-attachments/assets/359ce738-6ebd-4a5e-bb02-11a708a98415" />
+
+god zamn bro🤤
+
