@@ -1,4 +1,6 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F80TH-BRAWLER&label=%F0%93%8F%B2%D6%BC%F0%9D%84%A2%20.hi%20visitors%20%F0%9F%98%82&labelColor=%239d4e4e&countColor=%23bd341f&style=flat&labelStyle=upper)
+<img width="76" height="18" alt="IMG_1101" src="https://github.com/user-attachments/assets/a425f7ab-45ab-4a10-a089-67c2c90bfb40" />
+
 <img width="1470" height="416" alt="Untitled86_20260908161816" src="https://github.com/user-attachments/assets/320fa3e1-0c6c-4b3b-8d30-5df6ae220b45" />
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/904a2050-aaf0-4dd7-9c94-b46ee63806e7" />
 <img width="99" height="56" alt="stamp 3" src="https://github.com/user-attachments/assets/e29d7581-a90a-4d04-bf45-099954b17bfc" />
