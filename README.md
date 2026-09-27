@@ -27,5 +27,5 @@ I am Leu , Some people call me Jim or candy, Gemini is my zodiac  I’m a ISFP t
 
 
 
-<img width="386" height="39" alt="IMG_1206" src="https://github.com/user-attachments/assets/7b33abd7-eb6c-4dd5-8fc9-fe226f19c3c5" /><img width="386" height="39" alt="IMG_1206" src="https://github.com/user-attachments/assets/7b33abd7-eb6c-4dd5-8fc9-fe226f19c3c5" /><img width="178" height="110" alt="Untitled170_20260926130349" src="https://github.com/user-attachments/assets/e336f235-ab38-41fb-b6ae-61633882d963" />
+<img width="286" height="29" alt="IMG_1206" src="https://github.com/user-attachments/assets/7b33abd7-eb6c-4dd5-8fc9-fe226f19c3c5" /><img width="286" height="29" alt="IMG_1206" src="https://github.com/user-attachments/assets/7b33abd7-eb6c-4dd5-8fc9-fe226f19c3c5" /><img width="178" height="110" alt="Untitled170_20260926130349" src="https://github.com/user-attachments/assets/e336f235-ab38-41fb-b6ae-61633882d963" />
 
