@@ -15,12 +15,4 @@
 
 
 
-
-
-oh hey its me
-
-
-
-
-<img width="556" height="554" alt="Untitled185_20260927152433" src="https://github.com/user-attachments/assets/843f3f13-4eaf-4294-851f-ecb5c49da392" />
-
+<img width="334" height="334" alt="Untitled172_20260926130537" src="https://github.com/user-attachments/assets/f29781dd-a7b3-4555-8b01-d8cf3eca4910" />
