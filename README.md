@@ -14,5 +14,5 @@
 
 
 
-
+<p align="center">
 <img width="334" height="334" alt="Untitled172_20260926130537" src="https://github.com/user-attachments/assets/f29781dd-a7b3-4555-8b01-d8cf3eca4910" />
