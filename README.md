@@ -39,5 +39,5 @@ people who make seuxalized skins of Draco or any character and proceed to twerk 
 
 <p align="center">
 thats all . I hope you guys know you turn me up to 11 btw except people i have beef with 
-<p align="center"><img width="229" height="150" alt="IMG_1210" src="https://github.com/user-attachments/assets/2532227b-a9ee-424e-b31b-8f6545026328" />
+<p align="center"><img width="119" height="149" alt="IMG_1210" src="https://github.com/user-attachments/assets/2532227b-a9ee-424e-b31b-8f6545026328" />
 
