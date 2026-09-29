@@ -1,15 +1,18 @@
 # WILL BE WORKED ON SOON
 
-<p align="center"> 🟢/💬 = interact ,
-
-<p align="center">🎭 = roleplaying (i barely use this one ,.)
-
-<p align="center">🌙 = dniuf  / afk  (mostly afk ;)
-
-<p align="center">⛔ = very busy , multitasking , 
-
-
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+</p>
+<table align="center">
+  <tr>
+    <td align="center">
+      $\color{#d52828}{\normalsize{\texttt{🟢/💬 = interact ,}}}$ <br>
+      <img src="atgvea.gif" /> <br>
+      $\color{#bf023f}{\normalsize{\texttt{🎭 = roleplaying (i barely use this one ,.)}}}$ <br>
+      $\color{#bf023f}{\normalsize{\texttt{🌙 = dniuf / afk (mostly afk ;)}}}$ <br>
+      $\color{#980139}{\normalsize{\texttt{⛔ = very busy , multitasking ,}}}$ <br>
+      $\color{#ff0000}{\normalsize{\texttt{Draco yumes iwec because of something utterly ridiculous which happened . }}}$ <br>
+    </td>
+  </tr>
+</table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 
 
