@@ -1,5 +1,5 @@
 # WILL BE WORKED ON SOON
-<p align="center">Trying so bad not to selfship chester because my classmate kins him and does not want romantic attraction + im close with them😭✌️
+<p align="center">Trying so bad not to selfship chester because my classmate kins him , + im close with them😭✌️
 </p>
 <table align="center">
   <tr>
