@@ -1,5 +1,5 @@
 # WILL BE WORKED ON SOON
-<p align="center"> not selfshiping chester because my classmate kins him , + im close with them😭✌️
+<p align="center"> not selfshipping chester because my classmate kins him , + im close with them😭✌️
 </p>
 <table align="center">
   <tr>
