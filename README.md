@@ -30,10 +30,19 @@
 <img width="40" height="40" alt="IMG_1191" src="https://github.com/user-attachments/assets/04f7a867-626e-4ab5-84ae-7f49f37c3a7f" />
  
   
-  
-  # about me .
-I am Leu , Some people call me Jim or candy, Gemini is my zodiac  I’m a ISFP type , Im usually cold around strangers but im more anooying when im with friends im close with  . Im a really horrible decision  maker and if you ask me to choose a game, i will struggle to choose one . I am extremely immature in my point of view but ill try to be mature when i handle a situation . I dont know if im demiaroace or aroace but i am genderfluid. Yes,i occasionally make KMS jokes so if youre uncomfortable i can try to stop. Im normally online on ponytown BUT im normally offtab ,busy, afk or semiafk when im not around my friends . Yes PLEASE interact with me , i would love some friends . I dont interact first by the way . My main fandoms are CRTOA and Brawl stars . I am a selective-sharing fictionkin.
-
+  <details>
+ <summary>DNI LIST .<img width="20" height="20" alt="IMG_1024" src="https://github.com/user-attachments/assets/62d24d19-4caf-4ea0-ab85-a27bcead5a0b" /></summary>
+ <p>I am Leu , Some people call me Jim or candy, </p>
+ <p> Gemini is my zodiac I’m a ISFP type and im 13 years old,</p>
+ <p>Im a really horrible decision maker and if you ask me to choose a game, i will struggle to choose one . </p>
+  <p> .. I am extremely immature in my point of view but ill try to be mature when i handle a situation .</p>
+  <p>I dont know if im demiaroace or aroace but i am genderfluid</p>
+  <p>Im normally online on ponytown BUT im normally offtab ,busy, afk or semiafk when im not around my friends .</p>
+  <p>Yes PLEASE interact with me , i would love some friends . </p>
+  <p>. I dont interact first by the way .  .</p>
+  <p>My main fandoms are CRTOA and Brawl stars . I am a selective-sharing fictionkin.</p>
+  <p> i am uncomfy around draco yumes </p>
+</details>
 
 
 
