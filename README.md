@@ -31,7 +31,8 @@
  
   
   <details>
- <summary> ABOUT ME. .<img width="20" height="20" alt="IMG_1024" src="https://github.com/user-attachments/assets/62d24d19-4caf-4ea0-ab85-a27bcead5a0b" /></summary>
+ <summary> ABOUT ME. .<img width="35" height="35" alt="IMG_1224" src="https://github.com/user-attachments/assets/66aa3f44-6989-418f-bf3d-713b61744ed9" />
+</summary>
  <p>I am Leu , Some people call me Jim or candy, </p>
  <p> Gemini is my zodiac I’m a ISFP type and im 13 years old,</p>
  <p>Im a really horrible decision maker and if you ask me to choose a game, i will struggle to choose one . </p>
@@ -52,7 +53,8 @@
 
  
 <details>
- <summary>DNI LIST .<img width="20" height="20" alt="IMG_1024" src="https://github.com/user-attachments/assets/62d24d19-4caf-4ea0-ab85-a27bcead5a0b" /></summary>
+ <summary>DNI LIST <img width="35" height="35" alt="IMG_1225" src="https://github.com/user-attachments/assets/6edd3d8e-e9dd-4e6b-9c8c-b37a7a634c91" />
+</summary>
  <p>intentional misgendering on people and fictional characters.</p>
  <p>people who make seuxalized skins of Draco or any character and proceed to twerk or do sexualized shit infront of anyone/ HEAVY on draco , youll just get blocked because why rhe fuck are you sexualizing my comfort character +i relateto him too??? Even wrose if you do it infront of me or my moots</p>
  <p>Basic DNI</p>
