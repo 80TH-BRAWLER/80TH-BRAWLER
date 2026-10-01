@@ -42,8 +42,19 @@ I am Leu , Some people call me Jim or candy, Gemini is my zodiac  I’m a ISFP t
 
 
  
-<summary>DNI LIST .<img width="60" height="60" alt="IMG_1024" src="https://github.com/user-attachments/assets/62d24d19-4caf-4ea0-ab85-a27bcead5a0b" /></summary> 
-<p>people who make seuxalized skins of Draco or any character and proceed to twerk or do sexualized shit infront of anyone/ HEAVY  on draco , youll just get blocked because why rhe fuck are you sexualizing my comfort character +i relateto him too??? Even wrose if you do it infront of me or my moots.  .  Basic DNI . You find cyberbullying or any form of bullying funny. Draco and ANY CHARACTER  dark+proships shippers  . people who say whitewashing is bad but proceed to blackwash the character . NO i dont mean if they tan the colour , I MEAN if they make the canonly white character poc .  rpf yumes , people who have horny personalities . egoistic people . THAT draco yume this is targeted,YOU KNOW WHO YOU ARE,i have your chats blocked off btw.</p> 
+<details>
+ <summary>DNI LIST .<img width="20" height="20" alt="IMG_1024" src="https://github.com/user-attachments/assets/62d24d19-4caf-4ea0-ab85-a27bcead5a0b" /></summary>
+ <p>intentional misgendering on people and fictional characters.</p>
+ <p>people who make seuxalized skins of Draco or any character and proceed to twerk or do sexualized shit infront of anyone/ HEAVY on draco , youll just get blocked because why rhe fuck are you sexualizing my comfort character +i relateto him too??? Even wrose if you do it infront of me or my moots</p>
+ <p>Basic DNI</p>
+  <p> . You find cyberbullying or any form of bullying funny. </p>
+  <p>Draco and ANY CHARACTER dark+proships shippers</p>
+  <p>shippers . people who say whitewashing is bad but proceed to blackwash the character . NO i dont mean if they tan the colour , I MEAN if they make the canonly white character brown.</p>
+  <p>rpf yumes</p>
+  <p>people who have horny personalities .</p>
+  <p>egoistic people</p>
+  <p> THAT draco yume this is targeted,YOU KNOW WHO YOU ARE,i have your chats blocked off btw.</p>
+</details>
 
 
 # IF YOURE MY MOOT AND HAS SEEN MY ART 
