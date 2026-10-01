@@ -51,7 +51,7 @@ people who make seuxalized skins of Draco or any character and proceed to twerk 
 
 
 # IF YOURE MY MOOT AND HAS SEEN MY ART 
-Draco is NOT a teenager in my art. I just see him shorter than chester , please do NOT mistake me for a proshipper or darkshipper because lf that .
+Draco is NOT a teenager in my art. I just see him shorter than chester , please do NOT mistake me for a proshipper or darkshipper because of that . My art may make no sense / may look stiff due to me having no idea how to draw hand poses or poses that make sense somehow
 
 <p align="center">
 thats all . I hope you guys know you turn me up to 11 btw except people i have beef with 
