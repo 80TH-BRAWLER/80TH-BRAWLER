@@ -31,7 +31,7 @@
  
   
   <details>
- <summary>DNI LIST .<img width="20" height="20" alt="IMG_1024" src="https://github.com/user-attachments/assets/62d24d19-4caf-4ea0-ab85-a27bcead5a0b" /></summary>
+ <summary> ABOUT ME. .<img width="20" height="20" alt="IMG_1024" src="https://github.com/user-attachments/assets/62d24d19-4caf-4ea0-ab85-a27bcead5a0b" /></summary>
  <p>I am Leu , Some people call me Jim or candy, </p>
  <p> Gemini is my zodiac I’m a ISFP type and im 13 years old,</p>
  <p>Im a really horrible decision maker and if you ask me to choose a game, i will struggle to choose one . </p>
