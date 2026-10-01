@@ -50,7 +50,8 @@ I am Leu , Some people call me Jim or candy, Gemini is my zodiac  I’m a ISFP t
 people who make seuxalized skins of Draco or any character and proceed to twerk or do sexualized shit infront of anyone/ HEAVY  on draco , youll just get blocked because why rhe fuck are you sexualizing my comfort character +i relateto him too??? Even wrose if you do it infront of me or my moots.  .  Basic DNI . You find cyberbullying or any form of bullying funny. Draco and ANY CHARACTER  dark+proships shippers  . people who say whitewashing is bad but proceed to blackwash the character . NO i dont mean if they tan the colour , I MEAN if they make the canonly white character poc .  rpf yumes , people who have horny personalities . egoistic people . THAT draco yume this is targeted,YOU KNOW WHO YOU ARE,i have your chats blocked off btw.
 
 
-
+# IF YOURE MY MOOT AND HAS SEEN MY ART 
+Draco is NOT a teenager in my art. I just see him shorter than chester , please do NOT mistake me for a proshipper or darkshipper because lf that .
 
 <p align="center">
 thats all . I hope you guys know you turn me up to 11 btw except people i have beef with 
