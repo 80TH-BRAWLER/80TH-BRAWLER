@@ -14,21 +14,8 @@
   </tr>
 </table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-<img width="286" height="29" alt="IMG_1206" src="https://github.com/user-attachments/assets/7219d08b-76c6-4638-8f57-c5d4dad4fa6d" /><img width="286" height="29" alt="IMG_1206" src="https://github.com/user-attachments/assets/7219d08b-76c6-4638-8f57-c5d4dad4fa6d" />
 
 
-<img width="80" height="80" alt="IMG_1204" src="https://github.com/user-attachments/assets/582cf9b4-ee4e-4269-960a-e8e94da5b49c" />
-<img width="99" height="56" alt="stamp 5" src="https://github.com/user-attachments/assets/37b5d4d8-b5e5-4a8f-b4e7-979e467eab93" />
-
-<img width="99" height="56" alt="stamp 4" src="https://github.com/user-attachments/assets/c1a7afd0-df08-41ca-9251-ce55caaf9780" />
-
-<img width="99" height="55" alt="Untitled107_20260912173621" src="https://github.com/user-attachments/assets/19e1315b-6ceb-462b-8be8-f05cde6467ad" />
-
-<img width="99" height="56" alt="Untitled107_20260922183720" src="https://github.com/user-attachments/assets/8131415d-9fe0-41af-9283-d24c985674ce" />
-<img width="99" height="56" alt="stamp 3" src="https://github.com/user-attachments/assets/8e4d722f-9298-42fa-be35-9bb7d603b317" />
-<img width="99" height="56" alt="stamp 7" src="https://github.com/user-attachments/assets/8e94c4aa-405a-4a97-b180-75b1ccf6df24" />
-<img width="40" height="40" alt="IMG_1191" src="https://github.com/user-attachments/assets/04f7a867-626e-4ab5-84ae-7f49f37c3a7f" />
- 
   
   <details>
  <summary> ABOUT ME. .<img width="35" height="35" alt="IMG_1224" src="https://github.com/user-attachments/assets/66aa3f44-6989-418f-bf3d-713b61744ed9" />
@@ -48,12 +35,11 @@
 
 
 
-<img width="286" height="29" alt="IMG_1206" src="https://github.com/user-attachments/assets/7b33abd7-eb6c-4dd5-8fc9-fe226f19c3c5" /><img width="286" height="29" alt="IMG_1206" src="https://github.com/user-attachments/assets/7b33abd7-eb6c-4dd5-8fc9-fe226f19c3c5" />
 
 
  
 <details>
- <summary>DNI LIST <img width="35" height="35" alt="IMG_1225" src="https://github.com/user-attachments/assets/6edd3d8e-e9dd-4e6b-9c8c-b37a7a634c91" />
+ <summary>DNI LIST <img width="30" height="35" alt="IMG_1225" src="https://github.com/user-attachments/assets/6edd3d8e-e9dd-4e6b-9c8c-b37a7a634c91" />
 </summary>
  <p>intentional misgendering on people and fictional characters.</p>
  <p>people who make seuxalized skins of Draco or any character and proceed to twerk or do sexualized shit infront of anyone/ HEAVY on draco , youll just get blocked because why rhe fuck are you sexualizing my comfort character +i relateto him too??? Even wrose if you do it infront of me or my moots</p>
@@ -67,9 +53,26 @@
   <p> THAT draco yume this is targeted,YOU KNOW WHO YOU ARE,i have your chats blocked off btw.</p>
 </details>
 
+<details>
+ <summary> THIN ICE! <img width="35" height="29" alt="IMG_1226" src="https://github.com/user-attachments/assets/7d926177-58ef-42b6-a002-4db4ad3a7229" />
 
-# IF YOURE MY MOOT AND HAS SEEN MY ART 
-Draco is NOT a teenager in my art. I just see him shorter than chester , please do NOT mistake me for a proshipper or darkshipper because of that . My art may make no sense / may look stiff due to me having no idea how to draw hand poses or poses that make sense somehow
+</summary>
+ <p>You dislike my favourite characters , i wouldnt mind if we’re moots.</p>
+ <p>People who dislike Lumi due to her getting in the way of any draco ship .</p>
+ <p>Basic DNI</p>
+  <p> Under 10 ok if already moots </p>
+  <p>Draco and ANY CHARACTER dark+proships shippers</p>
+  <p> Melodraco shippers im so sorry bro i dont like this ship i see them was frenemies  </p>
+  <p>Forsaken , Dandys world players . I think you can understand why ; ok if moots </p>
+  <p>Draco x Keni shippers the ship just feels wrong to me im sorry </p>
+  <p>Beast x Ancient . Goldencheese shippers DNI because the new update implied she was a minor when burning spice wasnt corrupted.</p>
+  <p> Roleplayers , i dont mind you guys you guys are cool but i dont really wanna roleplay ships </p>
+</details>
+
+
+
+
+
 
 <p align="center">
 thats all . I hope you guys know you turn me up to 11 btw except people i have beef with 
