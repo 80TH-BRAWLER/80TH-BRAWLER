@@ -61,7 +61,6 @@
  <p>People who dislike Lumi due to her getting in the way of any draco ship .</p>
  <p>Basic DNI</p>
   <p> Under 10 ok if already moots </p>
-  <p>Draco and ANY CHARACTER dark+proships shippers</p>
   <p> Melodraco shippers im so sorry bro i dont like this ship i see them was frenemies  </p>
   <p>Forsaken , Dandys world players . I think you can understand why ; ok if moots </p>
   <p>Draco x Keni shippers the ship just feels wrong to me im sorry </p>
